@@ -1,5 +1,5 @@
 # 💫 About Me:
-student<br>
+I am interested in technology and problem-solving. I am always ready to learn and grow through new experiences.<br>
 
 
 ## 🌐 Socials:
